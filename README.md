@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Oluwaseyihub
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...learning
 - 🌱 I’m currently learning ...AI
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... oluwaseyiolorunnisola@gmail.com
